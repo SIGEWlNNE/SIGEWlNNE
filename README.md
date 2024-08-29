@@ -1,7 +1,7 @@
-![tumblr_cc58d687966c850d7900742face7fd1b_fa2a49cd_1280](https://github.com/user-attachments/assets/f04cb0c3-f110-4593-ae67-5a18184c1f49)
+![divider](https://github.com/user-attachments/assets/16b087c0-4963-4c85-9034-06fc2ee96f29)
 
-![PREYSEONTUMBLR](https://github.com/user-attachments/assets/9e00fbb3-c35c-4249-9098-20c68acdde11)
+![.](https://github.com/user-attachments/assets/b6a10844-78aa-4172-9a0f-520a2a4a4953)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsigewinne⠀⠀⠀she ⠀୨୧⠀ they ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　　please⠀read⠀ [byf.byi](https://rentry.co/theheadnurse)⠀⠀ .⠀⠀spam ⠀follower ⠀(?)ㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀discord ⠀= ⠀green ⠀names⠀⠀⠀⠀⠀[retrospring](https://retrospring.net/@romaritimeflower)⠀⠀[atabook](https://missnurse.atabook.org/)⠀⠀ㅤㅤ[roblox](https://www.roblox.com/users/1376427519/profile) ⠀=⠀green ⠀names
-![tumblr_2fa7400d29475a15d1e5eafeea61d339_16f39147_1280](https://github.com/user-attachments/assets/f91ddcfa-a3a7-43c2-89c3-a544e1ef261e)
+![divider](https://github.com/user-attachments/assets/86f563f0-0b7b-4ae0-b9ee-1a1fbf8c189e)
 
