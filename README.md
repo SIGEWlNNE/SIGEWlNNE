@@ -1,4 +1,3 @@
+![.](https://github.com/user-attachments/assets/d15d34b3-8154-4bff-9829-c16a53d8de02)
 ![.](https://github.com/user-attachments/assets/9806cdcd-b096-4a9a-b2b9-844b9c050b4b)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀she⠀⠀︵⠀⠀they ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [rentry](https://rentry.co/lNFIRMARY)⠀⠀ .⠀⠀spam ⠀follower ⠀(?)⠀ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀discord ⠀= ⠀green ⠀names⠀⠀⠀⠀⠀[retrospring](https://retrospring.net/@prototype)⠀⠀[atabook](https://missnurse.atabook.org/)⠀⠀ㅤㅤ[roblox](https://www.roblox.com/users/1376427519/profile) ⠀=⠀green ⠀names
-
+![.](https://github.com/user-attachments/assets/fb4ec187-3927-40dc-9a40-73077b5ff3c3)
